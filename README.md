@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Hubcosc
+- 👋 Hi, I’m Abdusleam!
 - 🔒 Cybersecurity Enthusiastic
 - 💻 Computer Science Student
 - 🚀 Learning New Techniques
